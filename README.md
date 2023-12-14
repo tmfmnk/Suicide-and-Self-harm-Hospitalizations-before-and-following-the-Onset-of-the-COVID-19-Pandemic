@@ -1,0 +1,1 @@
+# Suicide-and-Self-harm-Hospitalizations-before-and-following-the-Onset-of-the-COVID-19-Pandemic
